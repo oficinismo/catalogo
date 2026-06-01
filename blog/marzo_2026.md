@@ -14,7 +14,7 @@ Inútil día lunes. Intenté comer mejor y terminé comiendo puras hueás. Inten
 
 ***
 
-Hice 20 viñetas. Ninguna buena. Dormí demasiado de nuevo, es como si mis semanas fueran puro dormir 16 horas. No vi películas pero estoy avanzando **“Velcro y yo”** de **Rejtman** antes de lanzarme con sus diarios.
+Hice 20 viñetas. Ninguna buena. Dormí demasiado de nuevo, es como si mis semanas fueran puro dormir 16 horas. No vi películas pero estoy avanzando “Velcro y yo” de **Rejtman** antes de lanzarme con sus diarios.
 Tenía psiquiatra y no fui. Se me olvidó. Mañana en la mañana lo veré un rato.
 Reduje el clonazepam de uno a medio y no tomé siesta. Por eso dibujé tanto. El espacio temporal entre las 14:00 y las 18:00 hrs. vuelve a mí, vuelve mi conciencia. Espero no desaprovecharlo mirando Twitter.
 
